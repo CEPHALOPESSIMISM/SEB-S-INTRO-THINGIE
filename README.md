@@ -10,4 +10,8 @@
 
 <p align="center">----------------------------------------- </p>
 <p align="center"> ⛔️ i always have my ponytown status as "𝗱𝗼 𝗻𝗼𝘁 𝗱𝗶𝘀𝘁𝘂𝗿𝗯", but don't be afraid to compliment me or crown me in whispers! i promise, i don't bite (unless you're an ex-friend)! </p> <p align="center">----------------------------------------- </p> 
-<p align="center"> i fucking swear a lot, so if you don't like that tell me to stop or don't interact with me. </p>
+<p align="center"> 𝙄 𝙎𝙒𝙀𝘼𝙍 𝘼 𝙇𝙊𝙏. 𝘪𝘧 𝘵𝘩𝘢𝘵 𝘣𝘰𝘵𝘩𝘦𝘳𝘴 𝘺𝘰𝘶, 𝘱𝘰𝘭𝘪𝘵𝘦𝘭𝘺 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘵𝘰 𝘴𝘵𝘰𝘱. 𝘰𝘳 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘮𝘦. </p>
+
+<p align="center">----------------------------------------- </p>
+<p align="center"> you can find me sitting at docks or with my friends. don't be scared to say hi! i don't bite unless you're an ex-friend, in that case 𝗗𝗡𝗜! </p>
+<p align="center">----------------------------------------- </p>
