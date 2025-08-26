@@ -9,4 +9,5 @@
 
 
 <p align="center">----------------------------------------- </p>
-<p align="center"> ⛔️ i always have my ponytown status as "𝗱𝗼 𝗻𝗼𝘁 𝗱𝗶𝘀𝘁𝘂𝗿𝗯", but don't be afraid to compliment me or crown me in whispers! i promise, i don't bite (unless you're an ex-friend)! </p> <p align="center">----------------------------------------- </p> <p align="center">  </p>
+<p align="center"> ⛔️ i always have my ponytown status as "𝗱𝗼 𝗻𝗼𝘁 𝗱𝗶𝘀𝘁𝘂𝗿𝗯", but don't be afraid to compliment me or crown me in whispers! i promise, i don't bite (unless you're an ex-friend)! </p> <p align="center">----------------------------------------- </p> 
+<p align="center"> i fucking swear a lot, so if you don't like that tell me to stop or don't interact with me. </p>
