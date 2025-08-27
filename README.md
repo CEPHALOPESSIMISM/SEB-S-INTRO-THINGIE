@@ -15,3 +15,4 @@
 <p align="center">----------------------------------------- </p>
 <p align="center"> you can find me sitting at docks or with my friends. don't be scared to say hi! and like i previously stated, i don't bite unless you're an ex-friend, in that case 𝗗𝗡𝗜! </p>
 <p align="center">----------------------------------------- </p>
+<p align="center"> if we're friends, you may call me nicknames! like seabass or sebby webby or whatever your heart desires, just... be normal about it, yeah? </p>
