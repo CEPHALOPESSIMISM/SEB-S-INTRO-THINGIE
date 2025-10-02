@@ -1,5 +1,5 @@
-<img width="3035" height="2336" alt="Untitled260_20250825183459" src="https://i.postimg.cc/yNXXHDRQ/Untitled300-20250917225222.png" />
-<p align="center"> HE ✸ IT ✸ PUP | 9teen | yumeshipper ✸ gachikoi | artist | therian ✸ fictionkin | autistic </p>
+<img width="3035" height="2336" alt="Untitled260_20250825183459" src="https://i.postimg.cc/J4bvH4Wm/rock-lee-kimimaro.gif" />
+<p align="center"> Lee/Zeke/Sebastian/Moon | HE ✸ IT ✸ PUP | 9teen | yumeshipper ✸ gachikoi | artist | therian ✸ fictionkin | autistic </p>
 <p align="center"> <img width="38" height="24" alt="df12p7p-6cff94f0-b002-4de1-b987-b746a666ffc9" src="https://github.com/user-attachments/assets/0b8de917-6db3-4b4c-9f8a-dd1c5ab6e6f8" />
 <img width="38" height="24" alt="df12p6n-9bc6f9b8-40b7-4d1c-9a95-cdf6d4822b98" src="https://github.com/user-attachments/assets/6f9e11b4-06c0-4a69-abde-7c289e987722" />
 <img width="38" height="24" alt="df12p8l-aa9eda40-b4c6-4e70-90cd-92b181a2dfa1" src="https://github.com/user-attachments/assets/cf470588-ed23-49da-ad3c-5ad11c15fdbb" /><img width="38" height="24" alt="df12p61-da2ffa18-e55e-4772-82b4-d51d56e218c6" src="https://github.com/user-attachments/assets/f14a46ad-d963-4c78-a007-87e2648afda2" /> </p>
