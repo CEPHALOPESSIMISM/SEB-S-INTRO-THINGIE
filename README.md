@@ -6,7 +6,7 @@
 <p align="center"> <img width="24" height="24" alt="dfvoj2t-00a37a51-9f77-4363-b675-3dc2d96c7116" src="https://github.com/user-attachments/assets/217f521c-0991-4827-bdd6-19c538cbd477" /><img width="24" height="24" alt="dfvoj2g-cfd11de1-c790-4121-85a4-3da2c3de1498" src="https://github.com/user-attachments/assets/ec0450cf-388a-468f-9ba1-064fdd26d65f" /> </p>
 <p align="center"> Werewolfkin, Zombiekin, Dogkin </p>
 
-<p align="center"> LITERALLY MOONDANCER, TWILIGHT SPARKLE, AND SUNBURST IN REAL LIFE!!1!1!!!! </p>
+<p align="center"> plz talk 2 me abt naruto (ESPECIALLY ROCK LEE, AND THE EPISODES "THE LEAF'S HANDSOME DEVIL", "THE BEAST WITHIN", AND "RUN! THE CURRY OF LIFE!" !!!!!!!!!!</p>
 
 
 <p align="center">----------------------------------------- </p>
