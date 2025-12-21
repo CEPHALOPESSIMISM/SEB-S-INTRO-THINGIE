@@ -1,7 +1,2 @@
-![](https://i.postimg.cc/nVg0xPd4/Untitled14-20251201184016.png)
-<p align="center">⚡️Hello!!! you can call me Lee or Citrine (or Clemont I really don't care too much...)</p>
-<p align="center"> ⚡️I use He/It pronouns and I'm agender and bisexual (and poly ooooo)</p>
-<p align="center"> ⚡️Clemont fictionkin (<b>DOUBLES DNI</b>), dogkin, werewolfkin </p>
-<p align="center"> ⚡️Sits alone on 18+, sits with friend on safe!
-
-![](https://i.postimg.cc/ZRDBm6jv/Untitled13-20251201183711.png)
+<img width="736" height="736" alt="Untitled70_20251220232203" src="https://github.com/user-attachments/assets/d7884aee-0fa8-41a6-9d45-061c43ead470" />
+<p align="center"> Hallo! willkommen in meinen Github! Please make sure to read through this before you follow/interact with me! </p>
