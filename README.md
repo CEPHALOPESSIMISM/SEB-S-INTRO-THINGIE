@@ -11,4 +11,4 @@
 <p align="center"> I hide/block freely and I don't care if it hurts you or your friends feelings. I did it for my own comfort. Having your friends harrass and pester me about it (your friends will be immediately blocked) is useless.</p>
 
 ---
-![image0-44](https://github.com/user-attachments/assets/b7293b1e-5b1b-4d04-83d0-cc9f73d6deb4)
+![](https://github.com/user-attachments/assets/1b0ed300-4639-4203-9b7d-7ebd88e3be92)
