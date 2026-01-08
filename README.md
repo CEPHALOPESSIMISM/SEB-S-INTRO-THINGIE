@@ -1,4 +1,5 @@
-![](https://github.com/user-attachments/assets/fc00630b-ce71-4e5d-8d1a-95cee38989d9)
+<img width="1080" height="1080" alt="fritz_icon" src="https://github.com/user-attachments/assets/46dfd655-13a7-4904-b960-9db97e11726a" />
+
 
 <p align="center"> Hallo! willkommen in meinen Github! Please make sure to read through this before you follow/interact with me! </p>
 
@@ -12,4 +13,4 @@
 <p align="center"> I hide/block freely and I don't care if it hurts you or your friends feelings. I did it for my own comfort. Having your friends harrass and pester me about it (your friends will be immediately blocked) is useless.</p>
 
 ---
-![](https://github.com/user-attachments/assets/1b0ed300-4639-4203-9b7d-7ebd88e3be92)
+<img width="1920" height="1080" alt="WHIMSY" src="https://github.com/user-attachments/assets/da9c373b-fbd4-420a-b0c5-23ea004c0ba8" />
